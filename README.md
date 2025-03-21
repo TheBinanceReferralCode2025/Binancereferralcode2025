@@ -95,7 +95,7 @@ The best promo code for Binance is “431 277 160” with a $300-$600 sign up bo
 
 You can get a bonus on Binance by using “431 277 160” as your Binance referral code that will give you upto $600 in sign up bonus.
 
-**Conclusion**
+**In Conclusion**
 Proceed to create your Binance account with the Best Binance referral code and maximize your crypto earnings to the fullest.
 All the best in your trading on Binance.
 
